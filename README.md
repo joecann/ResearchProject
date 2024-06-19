@@ -1,1 +1,1 @@
-My research projexct for my masters
+My research project for my masters
